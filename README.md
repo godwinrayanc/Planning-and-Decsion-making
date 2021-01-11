@@ -1,1 +1,1 @@
-# Planning-and-Decsion-making
+# Planning-and-Decision-making
